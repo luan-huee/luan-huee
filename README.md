@@ -6,4 +6,4 @@ Olá, meu nome e Luan, estudo tecnologia e robotica no estado de Sp atráves da 
 
 Este espaço serve para postar os meus projetos 
 
-![](https://media1.tenor.com/m/tSS-nFhFEQgAAAAC/leehan-dann.gif)
+![](https://media1.tenor.com/m/9U3bJ2BE72UAAAAd/taehyung-taehyung-suchwita.gif)
