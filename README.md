@@ -6,4 +6,4 @@ Olá, meu nome e Luan, estudo tecnologia e robotica no estado de Sp atráves da 
 
 Este espaço serve para postar os meus projetos 
 
-![](https://media1.tenor.com/m/QCepl1eR3KYAAAAd/berry-berrywave.gif)
+![](https://media1.tenor.com/m/Ct95lbgVvBkAAAAC/inside-out-inside-out-2.gif)
